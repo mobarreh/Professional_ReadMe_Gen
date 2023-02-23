@@ -18,6 +18,3 @@
   ## Video Demonstration
   
 
-
-Uploading Screen Recording 2023-02-23 at 12.47.39.mov…
-
